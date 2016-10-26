@@ -1,0 +1,2 @@
+# samtrat
+kişisel
